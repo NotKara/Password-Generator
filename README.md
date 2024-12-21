@@ -1,2 +1,2 @@
- ![Password Gen Preview](https://ibb.co/5cBqwW8.png)
+ ![Password Gen Preview](https://imgur.com/a/zaWQP4X.png)
 
